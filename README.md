@@ -1,2 +1,2 @@
-# technology
-Alamin Online > Technology
+# Alamin Online > Technology
+https://alaminonline.com/technology
